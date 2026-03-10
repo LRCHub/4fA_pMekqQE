@@ -1,0 +1,83 @@
+# Gguggugi – Switch
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeah yeah
+Let’s go! We are coming
+Come on Come on
+You know what I’m talking about
+이상하게 너를 보면 멋대로 Ah
+날아올라 기분은 Oh brand new,
+brand new ya ya
+나조차 낯설게 느껴진 Feeling
+나의 발이 팔이
+네게 끌려
+Oh I really wanna see you
+심장은 Rum pum pum pum
+Without you, my engine will stop
+누가 전원을 꺼둔 듯
+작동이 안 돼 Woah
+One, Two, Five
+Oh 하루 종일 꺼졌다
+켜졌다 난 너로 바빠
+네게 닿으면 재빨리 Switch
+왠지 나조차 몰라도
+Nobody can turn off
+오직 너만이 아는 내 Switch
+Okay okay 알 것 같은 기시감
+Okay okay 익숙한 듯 너와 난
+내 숨을 완전히 너에게 난 맡겨
+네가 가져줘 내 맘의 Switch
+나도 모르는 새
+반응하는 Body body
+자꾸만 더 안달 나는 맘이 맘이
+너를 보면 볼수록 알겠어
+아마 처음부터 난
+Born to be in love with you
+Oh 모르는 척 웃는 넌 반칙
+Woah woah woah knock down
+알잖아 내 버튼의 위치 Right
+다 눌러봐 난 너라면 괜찮아
+감정을 재는 일엔 난 관심 없어
+불빛이 확 여기 내 안을 비춰
+모든 걸 Burning burning
+burning burning burning
+더 타올라서 보여줄게 네게
+Without you,
+my heartbeat will stop
+네가 생명을 주듯이
+태어나 다시 Woah
+One, Two, Five
+Oh 하루 종일 꺼졌다
+켜졌다 난 너로 바빠
+네게 닿으면 재빨리 Switch
+왠지 나조차 몰라도
+Nobody can turn off
+오직 너만이 아는 내 Switch
+Okay okay 알 것 같은 기시감
+Okay okay 익숙한 듯 너와 난
+내 숨을 완전히 너에게 난 맡겨
+네가 가져줘 내 맘의 Switch
+Woah 너의 눈빛에 나는 또 빠져
+I already know what to say
+처음 널 봤었던 어쩌면 그날부터
+이미 난 짐작했어
+이런 게 운명이지 Achcha!
+우리의 거리 좁혀갈 사이 Oh
+Oh my gosh baby Oh my gosh
+더 가까이 Closer
+Oh my gosh baby Oh my gosh
+Oh my gosh
+Oh my gosh
+Oh 하루 종일 꺼졌다
+켜졌다 난 네가 좋아
+너의 손끝에 재빨리 Switch
+이젠 이유를 알겠어
+Nobody can turn off
+오직 너만이 조종할 Switch
+Okay okay 분명해진 기시감
+Okay okay 애초부터 너와 난
+내 숨을 완전히 너에게 난 맡겨
+이젠 잡아줘 내 손을 Switch
+```
